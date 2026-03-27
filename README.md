@@ -1,0 +1,2 @@
+Viewers are compoletely discouraged from taking serious medical advice from this application.
+If a person experiences medical conditions or suspicion for such, it is advisable to seek professional help.
